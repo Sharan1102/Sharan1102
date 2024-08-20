@@ -5,6 +5,3 @@
 - 📫 How to reach me: sharanm1102@gmail.com | https://www.linkedin.com/in/sharanmarimuthu/
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love solving puzzles and exploring new technologies in my free time.
-
-
-
